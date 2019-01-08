@@ -15,7 +15,7 @@ Recipe from [Genius Kitchen](https://www.geniuskitchen.com/recipe/minados-perfec
 1. Ignore the directions on the bag that the rice came from and rinse the rice only 3-5 times. The water does NOT have to run clear.
 2. Place rice to drain in a strainer.
 3. Drain for one hour in the winter, 30 min. in the summer. (Sounds strange, but is true).
-4. While rice is draining, combine vinegar,sugar, salt and mirin together in a bowl and mix well.
+4. While rice is draining, combine vinegar, sugar, salt and mirin together in a bowl and mix well.
 5. If using a kelp leaf,it should be about 2 in long
 6. Wipe it lightly, cut small slits to make it look like a comb and add it to a pot along with the water.
 7. Add rice to the pot.
