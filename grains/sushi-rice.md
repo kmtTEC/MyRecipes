@@ -2,13 +2,13 @@
 Recipe from [Genius Kitchen](https://www.geniuskitchen.com/recipe/minados-perfect-sushi-rice-119373)
 
 **INGREDIENTS**
-- 2 cups riced sushi
+- 2 cups brown sushi
 - 2 cups water
-- 4 tablespoons riced vinegar
+- 4 tablespoons rice vinegar
 - 3 tablespoons sugar
 - 2 teaspoons salt
 - 2 tablespoons mirin
-- kelpy leaf (optional)
+- kelp leaf (optional)
 
 
 **DIRECTIONS**
