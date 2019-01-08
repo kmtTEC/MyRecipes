@@ -1,6 +1,5 @@
 ### MINADO'S PERFECT SUSHI RICE
 Recipe from [Genius Kitchen](https://www.geniuskitchen.com/recipe/minados-perfect-sushi-rice-119373)
-![sushi in progress](https://img.sndimg.com/food/image/upload/fl_progressive,c_fill,q_80,w_560,h_315/v1/img/recipes/11/93/73/01469802237.jpeg)
 
 **INGREDIENTS**
 - 2 cups sushi rice
